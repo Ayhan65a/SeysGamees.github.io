@@ -1,1 +1,1 @@
-# SeysGamees.github.io
+google.com, pub-6752941992763687, DIRECT, f08c47fec0942fa0
